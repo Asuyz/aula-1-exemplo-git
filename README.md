@@ -28,3 +28,6 @@ Se quiser trocar uma ideia ou compartilhar dicas, me avise! 😊
 email: aemygdioferreira@gmail.com / discord: asu_.
  
 **Obrigado por visitar meu repositório!** ✨
+
+
+** by: Andreygdio
