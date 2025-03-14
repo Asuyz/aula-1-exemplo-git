@@ -30,4 +30,4 @@ email: aemygdioferreira@gmail.com / discord: asu_.
 **Obrigado por visitar meu repositório!** ✨
 
 
-** by: Andreygdio
+**by: Andreygdio**
